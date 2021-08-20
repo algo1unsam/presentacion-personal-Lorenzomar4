@@ -8,6 +8,13 @@
   Elegi esta carrera porque soy un apasionado de la informatica y NO del derecho como el resto de mi familia, asi que soy como la oveja negra jajaj. Soy aluminero (Es como un carpintero pero en vez de trabajar con madera 
   se trabaja con el  aluminio) asi que mi vida diaria consiste en cortar aluminio y  armar marcos ,puertas ,ventanas y mosquiteros...
   En mis tiempos libres suelo viciar aunque ahora que comenzo la cursada lo voy a extrañar me parece jajaj .El ultimo juego que anduve jugando fue el "sekiro shadows die twice" (Juegazo!!) . 
-  ![22222](https://user-images.githubusercontent.com/74493204/130275799-221bcf36-49da-4249-97d0-e5a1d11983fc.jpg)
+  
+  
+  ![22222](https://user-images.githubusercontent.com/74493204/130276051-c34d6145-a54f-4535-b80c-35923f544171.jpg)
+
+  
+  
+  
+  
 
   
